@@ -1,4 +1,5 @@
-![](https://komarev.com/ghpvc/?username=burntushanka)
+<div align='center'>
+  ![](https://komarev.com/ghpvc/?username=burntushanka)
 
 
   <img src="https://i.postimg.cc/s2P8RJ89/IMG-8031.png" width="200"><img src="https://i.postimg.cc/s2P8RJ89/IMG-8031.png" width="200"><img src="https://i.postimg.cc/s2P8RJ89/IMG-8031.png" width="200">
@@ -12,4 +13,4 @@
   [strawpage](https://burntushanka.straw.page)  [atabook](https://burntushanka.atabook.org)
 
 <div align='center'>
-  *i may or may not add more... later*
+  i may or may not add more... later
