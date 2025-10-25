@@ -1,5 +1,3 @@
 ![](https://komarev.com/ghpvc/?username=burntushanka)
 
-## WIP 
-
-also! i will usually never interact first even if i want to interact with you!! please dont be afraid to come up to me and chat!! ^_^
+<img src="https://i.postimg.cc/s2P8RJ89/IMG-8031.png" width="200">
