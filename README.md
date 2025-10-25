@@ -1,6 +1,6 @@
 <div align='center'>
   
-  ![](https://komarev.com/ghpvc/?username=burntushanka)
+  ![](https://komarev.com/ghpvc/?username=burntushanka&color=A29988)
 
 
   <img src="https://i.postimg.cc/s2P8RJ89/IMG-8031.png" width="200"><img src="https://i.postimg.cc/s2P8RJ89/IMG-8031.png" width="200"><img src="https://i.postimg.cc/s2P8RJ89/IMG-8031.png" width="200">
