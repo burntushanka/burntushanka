@@ -11,7 +11,7 @@
 
  <img src="https://i.postimg.cc/x1hKfkBC/IMG-8063.png" width="200">
 
-  [strawpage](https://burntushanka.straw.page)  [atabook](https://burntushanka.atabook.org)
+  [NEW strawpage](https://burntushanka.straw.page)  [atabook](https://burntushanka.atabook.org)
 
 <div align='center'>
   i may or may not add more... later
