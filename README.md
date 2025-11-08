@@ -9,9 +9,11 @@
 
 <sub>DISCLAIMER!! I do not think i am kyle broflovski irl !! he's just my favorite character!💔</sub>
 
+
 <sub>(might remake this readme ok?)<sub>
 
-  [NEW strawpage](https://burntushanka.straw.page)  [atabook](https://burntushanka.atabook.org)
+
+  [strawpage](https://burntushanka.straw.page)  [atabook](https://burntushanka.atabook.org)
 
 <div align='center'>
-  i may or may not add more... later
+
