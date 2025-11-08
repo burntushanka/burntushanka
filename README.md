@@ -9,7 +9,7 @@
 
 <sub>DISCLAIMER!! I do not think i am kyle broflovski irl !! he's just my favorite character!💔</sub>
 
- <img src="https://i.postimg.cc/x1hKfkBC/IMG-8063.png" width="200">
+ (might remake this readme ok?)
 
   [NEW strawpage](https://burntushanka.straw.page)  [atabook](https://burntushanka.atabook.org)
 
