@@ -9,6 +9,8 @@
 
 <sub>DISCLAIMER!! I do not think i am kyle broflovski irl !! he's just my favorite character!💔</sub>
 
+pls dont be afraid to interact! ^_^
+
 
 <sub>(might remake this readme ok?)<sub>
 
