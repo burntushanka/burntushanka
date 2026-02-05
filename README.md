@@ -5,10 +5,10 @@
 
   
 <div align='center'>
- ♡ PFP BY : STYLEILYSM ON TWITTER!! ♡<img 
+ ♡ PFP BY : STYLEILYSM ON TWITTER!! ♡ 
 
 
-pls dont be afraid to interact! ^_^
+<div pls dont be afraid to interact! ^_^
 
 
 <sub>(gotta remake this readme ok?)<sub>
