@@ -5,7 +5,7 @@
 
   
 <div align='center'>
-<img src="https://i.postimg.cc/q7T957Qz/IMG-8061.png" width="50"> ♡ PFP BY : STYLEILYSM ON TWITTER!! ♡<img src="https://i.postimg.cc/bY48RqXp/IMG-8062.png" width="50">
+ width="50"> ♡ PFP BY : STYLEILYSM ON TWITTER!! ♡<img 
 
 
 pls dont be afraid to interact! ^_^
