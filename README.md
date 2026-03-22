@@ -19,5 +19,5 @@
 <div align='center'>
 
 
-ALSO!! as of recently i havent been very active on ponytown.. IM REALLY SORRY & ILL TRY TO LOG ON MORE OK?? 
+ALSO!! as of recently i havent been very active on ponytown.. IM REALLY SORRY!!! ill try to log on whenever i feel motivated to! 
 
