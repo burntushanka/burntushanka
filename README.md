@@ -14,7 +14,7 @@
 <sub>(gotta remake this readme ok?)<sub>
 
 
-  [strawpage](https://burntushanka.straw.page)  [atabook](https://burntushanka.atabook.org)
+  [NEW strawpage](https://unburntushanka.straw.page) [OLD strawpage](https://burntushanka.straw.page)  [atabook](https://burntushanka.atabook.org)
 
 <div align='center'>
 
