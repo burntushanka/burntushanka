@@ -19,5 +19,5 @@
 <div align='center'>
 
 
-ALSO!! as of recently i havent been very active on ponytown.. IM REALLY SORRY!!! ill try to log on whenever i feel motivated to! 
+I took a very VERY long break from pt… but I’m planning on trying to become more active ok… I miss you all my friends!!!!!!!
 
