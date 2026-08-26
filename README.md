@@ -22,7 +22,8 @@
 I took a very VERY long break from pt… but I’m planning on trying to become more active ok… I miss you all my friends!!!!!!!
 
 
-
+<br> 
+<br> 
 —————info if you’re too lazy to read my sp (which I recommend reading)———-
 <br> 
 
