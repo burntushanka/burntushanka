@@ -21,3 +21,17 @@
 
 I took a very VERY long break from pt… but I’m planning on trying to become more active ok… I miss you all my friends!!!!!!!
 
+
+
+—————info if you’re too lazy to read my sp (which I recommend reading)———-
+Call me either Kyle or sizzle! I am a girl who uses any pronouns!! I am a MINOR
+
+feel free to always INT or C+H unless I state otherwise!
+
+I don’t really have much of a dni atp.. I block freely !
+18+ are on thin ice.. (since once again, I’m a minor) we’re cool as long as you aren’t weird!
+
+my main fandom atm is southpark!! I also like other things (listed on my sp)
+💙💚 / 🎸📚
+
+I usually don’t interact first due to fear, you’ll have to make the first move if you wanna talk unfortunately……sorry!
